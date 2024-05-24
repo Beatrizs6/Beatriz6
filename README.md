@@ -5,4 +5,4 @@
 ###  meu e-mail 📧
    00001106093744sp@al.educacao.sp.gov.br
 
-   ![](https://tenor.com/pt-BR/view/kiss-gif-4875956593066505581)
+   ![](https://tenor.com/pt-BR/view/kiss-gif-487595659306650558)
